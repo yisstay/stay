@@ -1,0 +1,2 @@
+# stay
+Public Sharing Area
